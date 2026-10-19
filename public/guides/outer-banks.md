@@ -12,6 +12,9 @@ Imagine driving north until the pavement simply ends. You let the air out of you
 
 Seeing a stallion silhouetted against the morning surf is a core OBX memory. It’s a reminder that here, nature still calls the shots.
 
+![A wild Banker horse on the Corolla shoreline](/outer-banks-horses.png)
+*Corolla's wild Banker horses — Photo by StatesideScout*
+
 > **Scout Tip:** Don't just stay in your car. Book a **Corolla Wild Horse Tour** to go deep into the conservation areas where the horses gather in the shade of the maritime forest.
 
 ---
@@ -21,6 +24,9 @@ Seeing a stallion silhouetted against the morning surf is a core OBX memory. It�
 Standing at 210 feet, the **Cape Hatteras Lighthouse** is the tallest brick lighthouse in the United States. Its iconic black-and-white candy stripes are visible for miles, a literal beacon of safety for the "Graveyard of the Atlantic."
 
 Climbing the 257 steps is a rite of passage. As you ascend, the spiral staircase hums with the sound of the wind. When you reach the gallery, the view is breathtaking: a 360-degree panorama of the swirling Diamond Shoals, where the warm Gulf Stream meets the cold Labrador Current.
+
+![The Cape Hatteras Lighthouse and its black-and-white stripes](/hatteras-lighthouse.png)
+*The Cape Hatteras Light — Photo by StatesideScout*
 
 ---
 
@@ -51,6 +57,9 @@ Located right next to the lighthouse, this is for the traveler who wants the sou
 ## Charleston by Fork (OBX Edition): Where to Eat
 
 The food scene in the Outer Banks is defined by "dock-to-table" freshness.
+
+![A dock-to-table seafood spread on the Outer Banks](/obx-seafood.png)
+*Whatever the boats brought in this morning — Photo by StatesideScout*
 
 *   **Basnight's Lone Cedar Café (Nags Head):** A family-run institution since 1949. Try the local shrimp and grit—they use whatever the boats brought in that morning.
 *   **Awful Arthur's Oyster Bar (Kill Devil Hills):** Don’t let the name fool you. It’s the best raw bar on the coast. Grab a seat at the bar and watch the shucking in action.
