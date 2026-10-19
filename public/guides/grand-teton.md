@@ -12,6 +12,9 @@ The secret to a successful Teton wildlife safari is simple: be early. As the fir
 
 **Schwabacher Landing** is where your journey begins. Here, the beaver-dammed channels of the Snake River create a perfect mirror for the mountains. Watch for moose feeding on the river willows in the golden light. It’s a scene so quiet and perfect it feels like a dream—until the slap of a beaver’s tail on the water wakes you up.
 
+![Wildlife on the Teton Loop with the range behind](/teton-wildlife.png)
+*The reason to set the alarm — Photo by StatesideScout*
+
 > **Scout Tip:** After Schwabacher, head straight to **Oxbow Bend**. This slow-moving bend in the river is the premier spot for sighting grizzly bears, bald eagles, and the occasional river otter.
 
 ---
@@ -19,6 +22,9 @@ The secret to a successful Teton wildlife safari is simple: be early. As the fir
 ## Best Places to Stay: From Iconic Lodges to Luxury Retreats
 
 Whether you want to wake up inside the park or enjoy the "Old West" charm of Jackson, these are our top picks.
+
+![Jackson Lake Lodge with the Teton Range framed in the lobby windows](/jackson-hole-lodge.png)
+*The 60-foot window wall at Jackson Lake Lodge — Photo by StatesideScout*
 
 ### 1. Jackson Lake Lodge
 **The Vibe:** Iconic Park Grandeur
