@@ -12,6 +12,9 @@ The fish boil is more than just a meal; it’s a performance. Originating with S
 
 The process is simple but mesmerizing. A "Boil Master" tends a large iron cauldron over an open wood fire. Local Lake Michigan whitefish, potatoes, and onions are lowered into the boiling water. The climax occurs when the Boil Master throws kerosene onto the fire, causing a massive "boil-over" of flames and steam. This serves a practical purpose—it carries away the oils that have risen to the top—but for the crowd gathered around with their cameras ready, it’s pure theater.
 
+![A traditional Door County fish boil boiling over an open fire](/door-county-fish-boil.png)
+*The boil-over, the main event — Photo by StatesideScout*
+
 > **Scout Tip:** The **White Gull Inn** in Fish Creek is the most iconic spot for an authentic fish boil. Be sure to book weeks in advance, especially in July and August. And yes, you must finish your meal with a slice of local tart cherry pie.
 
 ---
@@ -56,6 +59,9 @@ While the boil is the headline, Door County’s culinary scene is surprisingly d
 *   **Peninsula State Park:** Offering over 3,700 acres of outdoor adventure, this park is the "crown jewel" of the Wisconsin state park system. Don't miss the view from the top of the **Eagle Tower**.
 *   **Cherry Picking:** Visit in late July to harvest your own tart cherries at orchards like **Seaquist** or **Cherry Lane**. If you're here in May, the white cherry blossoms are equally spectacular.
 *   **Washington Island Ferry:** Take your car or bike across "Death’s Door" to Washington Island. Visit the **Stavkirke** (a traditional wooden church) and the fragrant **Fragrant Isle Lavender Farm**.
+
+![Cana Island Lighthouse on Lake Michigan](/door-county-lighthouse.png)
+*Cana Island Light, at the end of the causeway — Photo by StatesideScout*
 
 ---
 

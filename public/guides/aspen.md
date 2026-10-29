@@ -10,6 +10,9 @@ In this virtual review, we explore why the "off-season" is actually Aspen’s pe
 
 You haven’t seen the Rockies until you’ve stood at the edge of Maroon Lake at sunrise. The **Maroon Bells**—two 14,000-foot peaks—are reportedly the most-photographed mountains in North America, and for good reason. In mid-summer, the valley floor is carpeted in columbine and lupine, creating a purple-and-gold frame for the iron-red peaks.
 
+![The Maroon Bells reflected in Maroon Lake at sunrise](/aspen-maroon-bells.png)
+*First light on the Maroon Bells — Photo by StatesideScout*
+
 > **Scout Tip:** To protect this fragile ecosystem, access is restricted. You’ll need to book a shuttle from Aspen Highlands. For the best light (and fewer crowds), aim for the 7:00 AM departure.
 
 ---
@@ -41,6 +44,9 @@ Right in the heart of downtown, the Limelight is known for its "expanded contine
 ## The Aspen Table: Farm-to-Table Refined
 
 The culinary scene in Aspen rivalries major metros, with a heavy emphasis on local Colorado ingredients.
+
+![A refined farm-to-table plate at an Aspen table](/aspen-dining.png)
+*Farm-to-table, at 8,000 feet — Photo by StatesideScout*
 
 *   **Element 47 (At The Little Nell):** Named after silver on the periodic table, this is "Aspen refined." Expect world-class wagyu and seasonal produce paired with an unparalleled wine list.
 *   **Pine Creek Cookhouse:** Located at the end of Castle Creek Road in the ghost town of Ashcroft. You have to hike or take a horse-drawn carriage to reach it, but the views of the Elk Mountains are worth every step.

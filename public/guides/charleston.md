@@ -2,8 +2,8 @@
 
 The scent of blooming jasmine and salty marsh air greets you as you step onto the cobblestone streets of Charleston, South Carolina. Known affectionately as the "Holy City" for its steeples that punctuate the low-country skyline, Charleston is more than just a historic destination—it's a sensory experience. From the rhythmic clip-clop of horse-drawn carriages to the world-class culinary scene that has earned the city global acclaim, Charleston is a place where Southern hospitality isn't just a phrase; it's a way of life.
 
-![Charleston Rainbow Row](/rainbow-row.png)
-*Rainbow Row at Golden Hour — Photo by StatesideScout*
+![Charleston's Rainbow Row on a cobblestone street](/charleston.png)
+*Rainbow Row on a quiet cobblestone morning — Photo by StatesideScout*
 
 ## Why Charleston? (The Virtual Review)
 
@@ -43,9 +43,6 @@ Stay in the former home of a signer of the Constitution. This B&B is dripping wi
 
 You can't talk about Charleston without talking about the food. The city has a higher concentration of James Beard Award-winning chefs than almost anywhere else in the US.
 
-![Southern Brunch Spread](/charleston-brunch.png)
-*A Classic Charleston Southern Brunch — Photo by StatesideScout*
-
 ### Husk
 **The Hype:** Sean Brock’s flagship restaurant is legendary. The menu changes daily and only uses ingredients sourced from the South. If it’s not from the South, it’s not on the plate.
 *   **Must-Order:** The Husk Cheeseburger or the slow-smoked pork.
@@ -71,8 +68,6 @@ The best way to see Charleston is on foot. Make sure your route includes:
 *   **Rainbow Row:** The iconic series of thirteen colorful historic houses.
 *   **The Battery & White Point Garden:** A waterfront park with views of Fort Sumter and the harbor.
 *   **Charleston City Market:** Pick up a world-famous Sweetgrass basket, a craft passed down through generations of Gullah artisans.
-
-> **Scout Tip:** If you want a truly authentic Sweetgrass basket, look for the weavers working on-site at the City Market. It’s one of the few places where you can buy directly from the artisans and learn about the Gullah heritage behind each piece.
 
 ### Boone Hall Plantation
 Known for its stunning "Avenue of Oaks," Boone Hall is one of the oldest working plantations in America. We highly recommend the Gullah culture presentation to understand the deep African influence on the region's food and language.
